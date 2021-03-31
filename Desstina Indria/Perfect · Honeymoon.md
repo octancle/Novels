@@ -6087,7 +6087,6 @@
     </p>
     <p>
         <b> EPILOG </b>
-        
     </p>
     <p>
         Jika ada yang bertanya pada Lisa bagaimana perfect honeymoon impiannya sekarang. Lisa akan menjawab dengan mantap, bahwa berduaan bersama Adrian dimana pun tempatnya, adalah yang paling sempurna. Dia tidak lagi memikirkan Bali seperti Impiannya dulu. Karena baginya tempat tak lagi penting. Yang menyempurnakan adalah dengan siapa dia bahagia bukan dimana dia akan bahagia. 
