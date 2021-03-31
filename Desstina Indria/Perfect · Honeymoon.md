@@ -6255,8 +6255,7 @@
         "Kamu lebih sayang sama kerjaan kamu dari pada sama aku? Yaudah sana nikahin aja perusahaan kamu!" Sambil terisak wanita itu berlari menuju kamarnya membuat Adrian kawatir. Dimas benar! Wanita memang gemar sekali membuat kesimpulan sendiri. Adrian mengusap wajahnya frustasi sambil berjalan cepat menyusul istrinya. 
     </p>
     <p>
-        "Sayang, ayo kita beli bubur! Aku gak jadi ke kantor nih!" 
-        
+        "Sayang, ayo kita beli bubur! Aku gak jadi ke kantor nih!"
     </p>
 </div>
 
