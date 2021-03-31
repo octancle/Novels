@@ -317,7 +317,8 @@
     </p>
     <p>
         "Jadi seperti ini kelakuanmu? Dan kau perempuan murahan, harus berapa kali saya katakan. Jangan dekati anakku! Dia sudah beristri. Apa sudah menjadi hobby mu merusak rumah tangga orang lain?" Aku benar-benar tidak habis fikir bagaimna ibuku bisa berbicara sekasar ini pada Nancy. 
-        
+    </p>
+    <p>
         "Mama cukup!" Ucapku sedikit berteriak. Aku lihat beberapa orang di sekeliling sudah melihat ke arah kami karena suara ibuku yang sedikit keras tadi. Nancy sudah berkaca-kaca dengan wajah merah padam menanggung malu. Ibuku benar- benar sudah keterlaluan. 
     </p>
     <p>
