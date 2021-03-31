@@ -5138,9 +5138,9 @@
     </p>
     <p>
         Mereka menyusuri pembangunan di temani pak mandor yang menjelaskan detail dan rancangan proyeknya. Dewi mendengarkan dengan malas, apalagi Lisa yang tidak mengerti sama sekali.
-       
     </p>
-    <p>"Mbak Dewi saya boleh angkat telpon sebentar ? dari Adrian." Dewi tertawa mendengar izin Lisa yang seperti anak sekolah meminta Izin ke kamar mandi pada gurunya. Istri Adrian benar-benar sangat polos.
+    <p>
+        "Mbak Dewi saya boleh angkat telpon sebentar ? dari Adrian." Dewi tertawa mendengar izin Lisa yang seperti anak sekolah meminta Izin ke kamar mandi pada gurunya. Istri Adrian benar-benar sangat polos.
     </p>
     <p>
         "Tentu saja boleh Lisa! Kamu lucu banget sih." Lisa tersenyum malu sambil mengucapkan terimakasih.
