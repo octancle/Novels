@@ -5037,8 +5037,9 @@
         "Nanti bunda bilangin sama ayah yah, bunda juga kangen ayah." Keduanya kemudian saling berpelukan seolah saling menyalurkan kekuatan. Sementara laki-laki itu segera merapatkan jaket hitam yang dikenakannya dan berjalan dengan santal tanpa mengundang kecurigaan sesikitpun. Dia akan melaksanakan rencananya sesegera mungkin, lalu kemudian membawa kedua wanita yang paling dia cintai di seluruh dunia itu untuk hidup lebih layak dan bahagia.
     </p>
     <p>
-        "Aku tahu sejak tadi kamu memperhatikan kami Dino." Bukannya berhenti dia malah semakin mempercepat langkahnya. Laki-laki itu tidak ingin bertemu dengan siapapun terutama Nancy. Karena rencana penculikan Lisa kemarin, wanita itu benar-benar tidak tahu. Dino bekerjasama dengan Aisah ibu mertuanya. Walaupun Nancy tidak menyukai Lisa, tapi wanita itu sangat marah ketika tahu bahwa Dino akan melakukan kecurangan pada gadis polos itu. Dan suaminya Itu sekarang memilih menghindar dari pada harus menghadapi berodongan pertanyaanya. 
-        
+        "Aku tahu sejak tadi kamu memperhatikan kami Dino." Bukannya berhenti dia malah semakin mempercepat langkahnya. Laki-laki itu tidak ingin bertemu dengan siapapun terutama Nancy. Karena rencana penculikan Lisa kemarin, wanita itu benar-benar tidak tahu. Dino bekerjasama dengan Aisah ibu mertuanya. Walaupun Nancy tidak menyukai Lisa, tapi wanita itu sangat marah ketika tahu bahwa Dino akan melakukan kecurangan pada gadis polos itu. Dan suaminya Itu sekarang memilih menghindar dari pada harus menghadapi berondongan pertanyaanya. 
+    </p>
+    <p>
         "Dino berhenti!" Nancy mulai terisak. "Tolong hentikan balas dendammu itu!" Sambungnya lagi. Karena tidak memperhatikan langkahnya, wanita itu tersandung dan terjatuh.
     </p>
     <p>
